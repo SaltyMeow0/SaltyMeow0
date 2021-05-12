@@ -1,0 +1,5 @@
+- 👋 Hi, I’m SaltyMeow0
+- 👀 looking for more friends
+- 🌱 i love plants
+- 💞️ taken <3
+- 📫 discord: SaltyMeow#8771
